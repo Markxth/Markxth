@@ -1,2 +1,2 @@
-My GitHub is NOT updated. Cybersecurity student | Red Teaming & CS + AI/ML Red Teaming | Undergraduate Researcher in HCI
+Cybersecurity student | Red Teaming & CS + AI/ML Red Teaming | Undergraduate Student Researcher
 - 📫 If you want to reach me, email me at marktudorh@gmail.com 
